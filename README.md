@@ -1,0 +1,2 @@
+# depo
+Sevgi aşk
